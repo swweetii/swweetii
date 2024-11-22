@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## hi! im she!⊹
+16 , , , 𐂯
 <!--
 **swweetii/swweetii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
